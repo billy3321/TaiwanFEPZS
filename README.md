@@ -14,8 +14,8 @@
 
 這本書的另外一個特色是，我們只有整理爭議，沒有整理正面說法，原因在於兩點：
 
-1. 政府已經很努力在整理簡單易懂的正面說法了：大家可以上[自經區官方網站](http://www.fepz.org.tw/m1.aspx?sNo=0019944)找找
-2. 政府有義務回答我們的問題：請大家找出自己關心的問題，對政府進行發問
+1. 政府努力整理了許多正面說法，實在不需要我們代勞：大家可以上[自經區官方網站](http://www.fepz.org.tw/m1.aspx?sNo=0019944)找找
+2. 政府有義務回答我們的問題：請大家找出自己關心的問題，對政府進行發問，並且和一些公民團體聯絡，籌備接下來的公民運動
 
 ## 綱要
 
@@ -47,8 +47,8 @@
 
 * [自經區草案法規與總說明](http://www.fepz.org.tw/dn.aspx?uid=34042)
 * [修正動議（執政黨）](https://drive.google.com/file/d/0B6ZiS9f8Cm9qbzJwWmVJNW9pRDQ/edit?usp=sharing)
-* [修正動議（在野黨）](https://drive.google.com/file/d/0B6ZiS9f8Cm9qbzJwWmVJNW9pRDQ/edit?usp=sharing)
-* [自經區法規影響評估報告(520)](www.fepz.org.tw/dn.aspx?uid=35707)
+* [修正動議（在野黨）](https://drive.google.com/file/d/0B6ZiS9f8Cm9qWkQtMTFJR2dFejA/edit?usp=sharing)
+* [自經區法規影響評估報告(520)](http://www.fepz.org.tw/dn.aspx?uid=35707)
 
 ---
 
